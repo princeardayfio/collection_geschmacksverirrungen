@@ -16,3 +16,8 @@ In art, there are numerous examples around the harlequin, such as "The Drunkard"
 
 For Schweizer, the turn of the millennium was a chance to get closer to the phenomenon of story as well as nothingness. This brings us to laughter.
 
+Group Members 
+Ardayfio Prince Andrew
+Matthew Hansen
+Luiza Peixe
+Swi Innocent
